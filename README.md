@@ -1,4 +1,4 @@
-# 💫 We only life one
+# 💫 We only live one
 
 - 🌱 The only skill I have is **Copy & Paste**
 
