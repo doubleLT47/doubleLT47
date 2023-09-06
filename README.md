@@ -1,7 +1,5 @@
 # 💫 We only live one
 
-- 🌱 The only skill I have is **Copy & Paste**
-
 - ⚡Fun fact: 
 - 📫 How to reach me **luannt201@gmail.com**
 
