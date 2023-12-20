@@ -1,6 +1,5 @@
-# 💫 We only live one
+# 💫 A much better future for all of us. 💫
 
-- ⚡Fun fact: 
 - 📫 How to reach me **luannt201@gmail.com**
 
 
